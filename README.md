@@ -4,4 +4,4 @@
 - I born in Xinxiang City,Henan Province.
 - I venture in Qingyang City, Gansu Province.
 - I want to settle down Yixing City, Wuxi City, Jiangsu Province.
-- My occupational is qualified Information Security Specialist.
+- My occupational is qualified Information Security Specialist，合格的信息安全专员.
